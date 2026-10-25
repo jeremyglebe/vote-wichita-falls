@@ -1,1 +1,0 @@
-# vote-wichita-falls
